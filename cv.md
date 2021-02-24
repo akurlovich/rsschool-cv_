@@ -1,4 +1,7 @@
 ##Kurlovich Artsiom   
+Location: Minsk, ready for relocate
+Date of birth: 21.05.1984  
+
 +37544-754-21-66 Viber/Telegram
 e-mail: qa.a.kurlovich@gmail.com
 ![](img/linkedin.png) [Linkedin account](https://www.linkedin.com/in/qa-a-kurlovich/)
